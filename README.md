@@ -1,10 +1,10 @@
-# ABHISHEK-SER
+# JIX BOT🥶
 
-### WhatsApp Bgm bot
+### WhatsApp Bgm bot⚡️
 
 ## World best Bgm whatsapp bot🖤
 
-<img src="https://i.imgur.com/WppGTCm.jpeg" alt="nz" width="350"/>
+<img src="1674827307216.jpg" alt="nz" width="350"/>
 
 </p>
 
